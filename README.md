@@ -6,6 +6,9 @@ March 22 - April 20 2023
 ## TVB Anywhere Moon Festival 2022
 27 Aug 2022
 
+## MANLY JAZZ FESTIVAL 2022
+SEP 24 - SEP 25
+
 Sutton
 https://www.tuliptopgardens.com.au/
 
