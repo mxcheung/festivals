@@ -1,5 +1,10 @@
 # festivals
 festivals
+
+## The Spot Festival 2022
+SUN 13 MAR 2022
+
+
 ## RAMADAN NIGHTS LAKEMBA
 March 22 - April 20 2023
 
@@ -8,6 +13,8 @@ March 22 - April 20 2023
 
 ## TVB Anywhere Moon Festival 2022
 27 Aug 2022
+
+## CRONULLA FEST 2022
 
 ## MANLY JAZZ FESTIVAL 2022
 SEP 24 - SEP 25
